@@ -1,1 +1,1 @@
-
+jawaban di kertas polio
